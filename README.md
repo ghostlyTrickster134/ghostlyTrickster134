@@ -1,16 +1,15 @@
-## Hi there 👋
+<img width="748" height="274" alt="image" src="https://github.com/user-attachments/assets/1191349d-de28-4675-a48b-5c4c4f2464dc" />
 
-<!--
-**ghostlyTrickster134/ghostlyTrickster134** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+༄.° John Egbert's REAL boyfriend ᶻ 𝘇 𐰁 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f9666587-a19b-46ac-8046-4ecac459bb02" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+| Absolutely sharing John egbert yume ᛝ
+
+| Multishipper, Davekat hater to the MAX!!! ؛༊
+
+ I love u alll.... ゛ ⸝⸝.ᐟ⋆
+
+ ‧˚꒰🐾୭ ˚. ᵎᵎ 
+
+ <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/0d3ecb0c-eceb-47b0-b432-db577deee188" />
