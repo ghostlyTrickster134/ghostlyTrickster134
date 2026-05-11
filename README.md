@@ -6,7 +6,11 @@
 
 | Absolutely sharing John egbert yume ᛝ
 
+|No dni!!! interact freely!!!! :B  ༄.°
+
 | Multishipper, Davekat hater to the MAX!!! ؛༊
+
+| 6teen!!!!! my birthday is april 28th...giggles..
 
  I love u alll.... ゛ ⸝⸝.ᐟ⋆
 
